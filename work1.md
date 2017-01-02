@@ -7,7 +7,7 @@
 系所：光電與通訊學系3A   
 * * *  
 >	由於課程需要，所以與他係一起合作拍了一部不是很專業的微電影：[決戰愛心筆](https://youtu.be/4rSsYFSU2iQ)
->	即使只有半天的時間，我們光通依然好棒棒的拿到了那不知道要做甚麼的**第二名**    <a href="http://imgur.com/lcx7WCE"><img src="http://i.imgur.com/lcx7WCE.jpg" title="source: imgur.com" /></a>
+>	即使只有半天的時間，我們光通依然好棒棒的拿到了那不知道要做甚麼的**第二名**    <a href="http://imgur.com/lcx7WCE" width="50%" height="50%"><img src="http://i.imgur.com/lcx7WCE.jpg" title="source: imgur.com" /></a>
 
 **興趣：**   
 * 滑滑手機
