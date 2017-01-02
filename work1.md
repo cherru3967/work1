@@ -8,15 +8,11 @@
 興趣：
 * 滑滑手機
 * 看看連續劇   
-|![Imgur](http://i.imgur.com/fpmKeXS.jpg)|![Imgur](http://i.imgur.com/zPl0Q0r.jpg)|![Imgur](http://i.imgur.com/AnNBGJz.jpg)|
-|![Imgur](http://i.imgur.com/LkVdQnR.jpg)|
-   
-   
-   
-| 一个普通标题 | 一个普通标题 | 一个普通标题 |
+| ![Imgur](http://i.imgur.com/fpmKeXS.jpg) | ![Imgur](http://i.imgur.com/zPl0Q0r.jpg) | ![Imgur](http://i.imgur.com/AnNBGJz.jpg) |
 | ------| ------ | ------ |
-| 短文本 | 中等文本 | 稍微长一点的文本 |
-| 稍微长一点的文本 | 短文本 | 中等文本 |
+| ![Imgur](http://i.imgur.com/LkVdQnR.jpg) |
+   
+
 **對這黑暗世界的看法：**   
 *	如果能坐著就別站著
 *	別總是把事情往自己身上攬   
