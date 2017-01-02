@@ -6,7 +6,7 @@
 姓名：章軒瑛   
 系所：光電與通訊學系3A   
 * * *  
->	由於課程需要，所以與他系一起合作拍了一部不是很專業的微電影：[決戰愛心筆](https://youtu.be/4rSsYFSU2iQ)
+	由於課程需要，所以與他系一起合作拍了一部不是很專業的微電影：[決戰愛心筆](https://youtu.be/4rSsYFSU2iQ)   
 >	即使只有半天的時間，我們光通依然好棒棒的拿到了那不知道要做甚麼的**第二名**    
 
 <a href="http://imgur.com/lcx7WCE"><img src="http://i.imgur.com/lcx7WCE.jpg" title="source: imgur.com" / height="300px"></a> <a href="http://imgur.com/VOLGKmb"><img src="http://i.imgur.com/VOLGKmb.jpg" title="source: imgur.com" / height="300px"></a>   
